@@ -1,1 +1,1 @@
-descricao
+batata frita
